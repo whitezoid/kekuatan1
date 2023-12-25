@@ -1,0 +1,1 @@
+# kekuatan1
